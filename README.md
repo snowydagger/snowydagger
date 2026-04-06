@@ -6,7 +6,7 @@
 <h5 align="left">—3 You can sit with me all the time as long as my other friends are okay with it!</h4>
 <h5 align="left">—4 Please respect the basic DNI criteria!! 
 <h5 align="left">—5 Generally, just do not bring up any heated arguments towards our way, if you have an issue, we will gladly address it in a  civil manner!!
-<h5 align="left">—6 If we do not answer, don't worry, we are probably just ADK or Asleep!! feel free to whisper regardless :]
+<h5 align="left">—6 If we do not answer, don't worry, we are probably just AFK or Asleep!! feel free to whisper regardless :]
 <h3 align="center"> <img width="1000" height="99" alt="image" src="https://github.com/user-attachments/assets/dcfc0f39-5c04-4469-91da-b9124fe88d79" />
 <img width="360" height="400" alt="image" align="left" src="https://github.com/user-attachments/assets/750a828a-add5-42df-9848-c0723bee1421" />
 <h3 align="center"><img width="40" height="40" alt="image" src="https://64.media.tumblr.com/00a2184b8259050112407017835ec263/ffff390c7ea62579-ff/s75x75_c1/a8721f456cf2ca3f8777dff3f472050df954c682.gifv" />!! DNI !!
